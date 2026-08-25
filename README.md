@@ -1,4 +1,12 @@
-<img width="700" height="500" alt="129971139241484012-removebg-preview" src="https://github.com/user-attachments/assets/4df2febb-9f8b-4350-8919-5a2aa8be82f8" />
+<img width="800" height="406" alt="Screenshot 2026-08-24 5 44 46 PM" src="https://github.com/user-attachments/assets/c913ab48-0669-4b69-8434-2ff9ea06a609" />
+
+
+
+
+
+<img width="500" height="500" alt="Untitled - August 25, 2026 at 00 00 49 (1)" src="https://github.com/user-attachments/assets/5f8e60cd-129f-49e9-833c-530d066c5ce4" />
+
+
 
 
 
@@ -7,7 +15,8 @@
 
 
 
-<img width="900" height="422" alt="banner_mequot___-removebg-preview" src="https://github.com/user-attachments/assets/3c88fe86-0347-4a4c-b76b-8e319e7428b3" />
+<img width="800" height="422" alt="Untitled - August 24, 2026 at 23 53 56" src="https://github.com/user-attachments/assets/00d06e86-43d4-417f-85fd-44ad53e626b0" />
+
 
 
 
@@ -25,8 +34,7 @@ i don't care what gender you see me as.
 
 ⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔  ││
 
-<img width="200" height="200" alt="mequot-roblox" src="https://github.com/user-attachments/assets/01d470f5-dbdd-4c29-b26f-162b220d7ada" />
-
+<img width="470" height="450" alt="Untitled - August 25, 2026 at 00 00 49 (2)" src="https://github.com/user-attachments/assets/00b1bc4e-1840-46a5-82ab-22a584d0d222" />
 
 minor │ 13+
 
@@ -38,3 +46,5 @@ basic dni's +
 (other) │ dni :  pixeldrink fans, qwel/rox supporters, n*zi's, etc.
 
 
+
+<img width="736" height="937" alt="Mortuus Flores — Dan Forbes" src="https://github.com/user-attachments/assets/5ea826f7-3d85-4c44-9058-b7cb26bc1db8" />
