@@ -1,4 +1,14 @@
-<img width="574" height="500" alt="627337423139428975" src="https://github.com/user-attachments/assets/50a53246-876d-4253-9544-053f457e62e9" />
+<img width="700" height="500" alt="129971139241484012-removebg-preview" src="https://github.com/user-attachments/assets/4df2febb-9f8b-4350-8919-5a2aa8be82f8" />
+
+
+
+
+"Please don't kill me!"
+
+
+
+<img width="900" height="422" alt="banner_mequot___-removebg-preview" src="https://github.com/user-attachments/assets/3c88fe86-0347-4a4c-b76b-8e319e7428b3" />
+
 
 
 
@@ -15,6 +25,7 @@ i don't care what gender you see me as.
 
 ⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔  ││
 
+<img width="200" height="200" alt="mequot-roblox" src="https://github.com/user-attachments/assets/01d470f5-dbdd-4c29-b26f-162b220d7ada" />
 
 
 minor │ 13+
@@ -27,8 +38,3 @@ basic dni's +
 (other) │ dni :  pixeldrink fans, qwel/rox supporters, n*zi's, etc.
 
 
-<img width="200" height="100" alt="Angel Wings Pink Sticker - Angel Wings Pink - Discover   Share GIFs" src="https://github.com/user-attachments/assets/f14bcc23-7fb9-4dcd-8809-55b4ad0353ef" />
-
-
-
-<img width="200" height="130" alt="kangel-puking" src="https://github.com/user-attachments/assets/20d6e65d-65c9-4e6e-a838-04d16049e1dd" />
