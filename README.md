@@ -11,7 +11,7 @@
 
 
 
-$\color{darkred}{\text{"P-please don't kill me!"  -  Mequot.}}$
+$\color{#FF4D4D}{\text{"P-please don't kill me!" - Mequot.}}$
 
 
 
@@ -21,28 +21,32 @@ $\color{darkred}{\text{"P-please don't kill me!"  -  Mequot.}}$
 
 
 
-$\color{darkred}{\text{Please, call me Aspen, Andre, or cc.}}$
+$\color{#FF4D4D}{\text{Please, call me Aspen, Andre, or cc.}}$
 
-$\color{darkred}{\text{aegosexual , genderfluid}}$
-$\color{darkred}{\text{use any pronouns  ,  afab}}$
-
+$\color{#FF4D4D}{\text{aegosexual , genderfluid}}$
 
 
-$\color{darkred}{\text{"I don't care what gender you see me as."}}$
+
+$\color{#FF4D4D}{\text{use any pronouns , afab}}$
 
 
-$\color{darkred}{\text{⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔}}$
+
+$\color{#FF4D4D}{\text{"I don't care what gender you see me as."}}$
+
+
+
+$\color{#FF4D4D}{\text{⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔}}$
 
 <img width="470" height="450" alt="Untitled - August 25, 2026 at 00 00 49 (2)" src="https://github.com/user-attachments/assets/00b1bc4e-1840-46a5-82ab-22a584d0d222" />
 
-$\color{darkred}{\text{minor │ 13+}}$
+$\color{#FF4D4D}{\text{minor │ 13+}}$
 
 
 
-$\color{darkred}{\text{15+ and above may int , but iwcuf.}}$
+$\color{#FF4D4D}{\text{15+ and above may int , but iwcuf.}}$
 
-$\color{darkred}{\text{basic dni's +}}$
-$\color{darkred}{\text{(other) │ dni :  pixeldrink fans, qwel/rox supporters, n*zi's, etc.}}$
+$\color{#FF4D4D}{\text{basic dni's +}}$
+$\color{#FF4D4D}{\text{(other) │ dni :  pixeldrink fans, qwel/rox supporters, n*zi's, etc.}}$
 
 
 
