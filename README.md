@@ -21,17 +21,17 @@ $\color{#FF4D4D}{\text{"P-please don't kill me!" - Mequot.}}$
 
 
 
-$\color{#FF4D4D}{\text{Please, call me Aspen, Andre, or cc.}}$
+$\color{#F4DEE0}{\text{Please, call me Aspen, Andre, or cc.}}$
 
-$\color{#FF4D4D}{\text{aegosexual , genderfluid}}$
-
-
-
-$\color{#FF4D4D}{\text{use any pronouns , afab}}$
+$\color{#DAA0A2}{\text{aegosexual , genderfluid}}$
 
 
 
-$\color{#FF4D4D}{\text{"I don't care what gender you see me as."}}$
+$\color{#DF8F8E}{\text{use any pronouns , afab}}$
+
+
+
+$\color{#D45D5F}{\text{"I don't care what gender you see me as."}}$
 
 
 
@@ -39,11 +39,11 @@ $\color{#FF4D4D}{\text{⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔}}$
 
 <img width="470" height="450" alt="Untitled - August 25, 2026 at 00 00 49 (2)" src="https://github.com/user-attachments/assets/00b1bc4e-1840-46a5-82ab-22a584d0d222" />
 
-$\color{#FF4D4D}{\text{minor │ 13+}}$
+$\color{#A30D16}{\text{minor │ 13+}}$
 
 
 
-$\color{#FF4D4D}{\text{15+ and above may int , but iwcuf.}}$
+$\color{#610404}{\text{15+ and above may int , but iwcuf.}}$
 
 $\color{#FF4D4D}{\text{basic dni's +}}$
 $\color{#FF4D4D}{\text{(other) │ dni :  pixeldrink fans, qwel/rox supporters, n*zi's, etc.}}$
