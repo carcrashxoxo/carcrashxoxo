@@ -5,6 +5,9 @@ https://www.wattpad.com/user/aftermathoflove
 
 <img width="500" height="500" alt="Untitled - August 25, 2026 at 00 00 49 (1)" src="https://github.com/user-attachments/assets/5f8e60cd-129f-49e9-833c-530d066c5ce4" />
 
+!!
+
+<img width="246" height="35" alt="Screenshot 2026-08-28 1 14 25 AM" src="https://github.com/user-attachments/assets/cd4dbca5-2a32-4216-9bbc-808da6f69199" />
 
 
 $\color{#FF4D4D}{\text{@charactersofpt , thank u so much for tagging me as azure of forsaken , my FIRST TITLE.
