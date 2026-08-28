@@ -6,7 +6,9 @@ https://www.wattpad.com/user/aftermathoflove
 <img width="500" height="500" alt="Untitled - August 25, 2026 at 00 00 49 (1)" src="https://github.com/user-attachments/assets/5f8e60cd-129f-49e9-833c-530d066c5ce4" />
 
 
-@charactersofpt , thank u so much for tagging me as azure of forsaken , my FIRST TITLE.
+
+$\color{#FF4D4D}{\text{@charactersofpt , thank u so much for tagging me as azure of forsaken , my FIRST TITLE.
+I genuinely cried for like the last 5 minutes, ok.}}$
 
 
 
