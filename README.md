@@ -1,52 +1,51 @@
-<img width="246" height="35" alt="Screenshot 2026-08-28 1 14 25 AM" src="https://github.com/user-attachments/assets/cd4dbca5-2a32-4216-9bbc-808da6f69199" />
+<p align="center"> <img width="246" height="35" alt="Screenshot 2026-08-28 1 14 25 AM" src="https://github.com/user-attachments/assets/cd4dbca5-2a32-4216-9bbc-808da6f69199" /> </p>
 
 
-$\color{darkcyan}{\text{@charactersofpt , thank u so much for tagging me as azure of forsaken , my FIRST TITLE.
-I genuinely cried for like the last 5 minutes, ok.}}$
-
-
-
-$\color{cyan}{\text{"Yea!! Let's get this party ON!" - Noob.}}$
+<p align="center"> $\color{darkcyan}{\text{@charactersofpt , thank u so much for tagging me as azure of forsaken , my FIRST TITLE.}}$ </p>
 
 
 
-<img width="1000" height="560" alt="45kggf" src="https://github.com/user-attachments/assets/57a2fdb1-dca5-4fa1-acb5-e4b99544a84e" />
+<p align="center"> $\color{cyan}{\text{"Yea!! Let's get this party ON!" - Noob.}}$ </p>
+
+
+
+<p align="center"> <img width="1000" height="560" alt="45kggf" src="https://github.com/user-attachments/assets/57a2fdb1-dca5-4fa1-acb5-e4b99544a84e" /> </p>
 
 
 
 
 
-$\color{darkcyan}{\text{Please, call me Aspen, Andre, or cc.}}$
+<p align="center"> $\color{darkcyan}{\text{Please, call me Aspen, Andre, or cc.}}$ </p>
 
-$\color{darkcyan}{\text{aegosexual , genderfluid}}$
-
-
-
-$\color{darkcyan}{\text{use any pronouns , afab}}$
+<p align="center"> $\color{darkcyan}{\text{aegosexual , genderfluid}}$ </p>
 
 
 
-$\color{darkcyan}{\text{"I don't care what gender you see me as."}}$
+<p align="center"> $\color{darkcyan}{\text{use any pronouns , afab}}$ </p>
 
 
 
-$\color{darkcyan}{\text{⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔}}$
+<p align="center"> $\color{darkcyan}{\text{"I don't care what gender you see me as."}}$ </p>
+
+
+
+<p align="center"> $\color{darkcyan}{\text{⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔}}$ </p>
 
 <img width="1000" height="315" alt="7ei0y8" src="https://github.com/user-attachments/assets/7e4224d9-02ad-4618-8437-639807fec8f4" />
 
-$\color{darkcyan}{\text{⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔}}$
+<p align="center"> $\color{darkcyan}{\text{⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔}}$ </p>
 
 
 
-$\color{darkcyan}{\text{minor │ 13+}}$
+<p align="center"> $\color{darkcyan}{\text{minor │ 13+}}$ </p>
 
 
 
-$\color{darkcyan}{\text{15+ and above may int , but iwcuf.}}$
+<p align="center"> $\color{darkcyan}{\text{15+ and above may int , but iwcuf.}}$ </p>
 
-$\color{darkcyan}{\text{basic dni's +}}$
-$\color{darkcyan}{\text{(other) │ dni :  pixeldrink fans, qwel/rox supporters, n*zi's, etc.}}$
+<p align="center"> $\color{darkcyan}{\text{basic dni's +}}$ </p>
+<p align="center"> $\color{darkcyan}{\text{(other) │ dni :  pixeldrink fans, qwel/rox supporters, n*zi's, etc.}}$ </p>
 
 
 
-<img width="1000" height="590" alt="btq8ww" src="https://github.com/user-attachments/assets/1c7a8e3c-4034-419b-8b9d-7939c7fb48b4" />
+<p align="center"> <img width="1000" height="590" alt="btq8ww" src="https://github.com/user-attachments/assets/1c7a8e3c-4034-419b-8b9d-7939c7fb48b4" /> </p>
