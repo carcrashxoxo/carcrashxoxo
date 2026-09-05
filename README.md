@@ -1,4 +1,3 @@
-<img width="736" height="1249" alt="1de703c7e163eabf1716f4ee461fc318" src="https://github.com/user-attachments/assets/b0e3d6e8-de8d-407f-ab14-5cecb88530c8" />
 <p align="center"> <img width="246" height="35" alt="Screenshot 2026-08-28 1 14 25 AM" src="https://github.com/user-attachments/assets/cd4dbca5-2a32-4216-9bbc-808da6f69199" /> </p>
 
 
@@ -50,3 +49,9 @@
 
 
 <p align="center"> <img width="1000" height="590" alt="btq8ww" src="https://github.com/user-attachments/assets/1c7a8e3c-4034-419b-8b9d-7939c7fb48b4" /> </p>
+
+
+
+<img width="638" height="480" alt="images (10)" src="https://github.com/user-attachments/assets/1ddd4b56-fa5d-4124-820a-2a7a8b04f111" />
+
+$\color{darkcyan}{\text{ Divinity x Shanty canon, they're my NEW parents now idc meow}}$ </p>
