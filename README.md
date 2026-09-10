@@ -1,9 +1,13 @@
+<p align="center"> <img width="587" height="33" alt="Screenshot 2026-09-09 3 23 17 PM" src="https://github.com/user-attachments/assets/c35d0df1-2c89-4ac3-9178-3758167f5e07" /> </p>
+
+<p align="center"> <img width="556" height="30" alt="image" src="https://github.com/user-attachments/assets/e739a736-bf28-48e0-9bd3-e8ebee131da7" /> </p>
+
 <p align="center"> <img width="246" height="35" alt="Screenshot 2026-08-28 1 14 25 AM" src="https://github.com/user-attachments/assets/cd4dbca5-2a32-4216-9bbc-808da6f69199" /> </p>
 
 <p align="center"> <img width="302" height="22" alt="Screenshot 2026-09-07 10 34 32 PM" src="https://github.com/user-attachments/assets/01608a51-67ad-44d8-a72c-02f55c67384a" /> </p>
 
 
-<p align="center"> $\color{darkcyan}{\text{ charactersofpt and ponytown-rewards, thank u so much for the nomination ! also shoutout to ChemicalShot !!!!!}}$ </p>
+<p align="center"> $\color{darkcyan}{\text{thank u so much for the nomination ! also shoutout to ChemicalShot !!!!!}}$ </p>
 
 
 
