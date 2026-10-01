@@ -1,6 +1,16 @@
-$\color{darkcyan}{\text{nomination account .}}$
+<p align="center"> <img width="482" height="96" alt="userbox (3)" src="https://github.com/user-attachments/assets/02b20689-9421-40a9-a6e3-51e03f36da32" /> </p>
 
-[daggerstruckmage](https://github.com/daggerstruckmage) </p>
+
+<p align="center"><img align="center" src="https://komarev.com/ghpvc/?username=carcrashxoxo&style=flat&color=ff288b&label=TeaPartyMembers" alt="view+counter"> </br></p>
+
+<p align="center"> $\color{hotpink}{\text{MY nomination account .}}$ </p>
+
+<p align="center">
+  <a href="https://github.com/daggerstruckmage">daggerstruckmage</a>
+</p>
+
+
+
 
 <p align="center"> <img width="262" height="28" alt="image" src="https://github.com/user-attachments/assets/92853ef0-939b-498c-a34f-cff358e3123e" /> </p>
 <p align="center"> <img width="264" height="34" alt="image" src="https://github.com/user-attachments/assets/9aa4e7eb-07b9-4ae9-8b31-f7fa8e588b1b" /> </p>
@@ -14,51 +24,51 @@ $\color{darkcyan}{\text{nomination account .}}$
 <p align="center"> <img width="302" height="22" alt="Screenshot 2026-09-07 10 34 32 PM" src="https://github.com/user-attachments/assets/01608a51-67ad-44d8-a72c-02f55c67384a" /> </p>
 
 
-<p align="center"> $\color{darkcyan}{\text{thank u so much for the nomination ! also shoutout to ChemicalShot !!!!!}}$ </p>
+<p align="center"> $\color{hotpink}{\text{thank u so much for the nomination ! also shoutout to ChemicalShot !!!!!}}$ </p>
 
 
 
-<p align="center"> $\color{cyan}{\text{"Yea!! Let's get this party ON!" - Noob.}}$ </p>
+<p align="center"> $\color{hotpink}{\text{"Yea!! Let's get this party ON!" - Noob.}}$ </p>
 
 
 
-<p align="center"> <img width="1000" height="560" alt="45kggf" src="https://github.com/user-attachments/assets/57a2fdb1-dca5-4fa1-acb5-e4b99544a84e" /> </p>
+<p align="center"> <img width="1000" height="200" alt="951948440010657560" src="https://github.com/user-attachments/assets/9014ac87-2f33-4790-a616-544ce5500fd1" /> </p>
 
 
 
 
 
-<p align="center"> $\color{darkcyan}{\text{Please, call me Aspen, Andre, or cc.}}$ </p>
+<p align="center"> $\color{hotpink}{\text{Please, call me Aspen, Andre, or cc.}}$ </p>
 
-<p align="center"> $\color{darkcyan}{\text{aegosexual , genderfluid}}$ </p>
-
-
-
-<p align="center"> $\color{darkcyan}{\text{use any pronouns , afab}}$ </p>
+<p align="center"> $\color{hotpink}{\text{aegosexual , genderfluid}}$ </p>
 
 
 
-<p align="center"> $\color{darkcyan}{\text{"I don't care what gender you see me as."}}$ </p>
+<p align="center"> $\color{hotpink}{\text{use any pronouns , afab}}$ </p>
 
 
 
-<p align="center"> $\color{darkcyan}{\text{⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔}}$ </p>
-
-<img width="1000" height="315" alt="7ei0y8" src="https://github.com/user-attachments/assets/7e4224d9-02ad-4618-8437-639807fec8f4" />
-
-<p align="center"> $\color{darkcyan}{\text{⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔}}$ </p>
+<p align="center"> $\color{hotpink}{\text{"I don't care what gender you see me as."}}$ </p>
 
 
 
-<p align="center"> $\color{darkcyan}{\text{minor │ 13+}}$ </p>
+<p align="center"> $\color{hotpink}{\text{⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔}}$ </p>
+
+<p align="center"> <img width="300" height="57" alt="Tumblr-l-621950753802118" src="https://github.com/user-attachments/assets/bf903193-9942-4acc-b818-2f1465ac8f5c" /> </p>
+
+<p align="center"> $\color{hotpink}{\text{⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔}}$ </p>
 
 
 
-<p align="center"> $\color{darkcyan}{\text{15+ and above may int , but iwcuf.}}$ </p>
-
-<p align="center"> $\color{darkcyan}{\text{basic dni's +}}$ </p>
-<p align="center"> $\color{darkcyan}{\text{(other) │ dni :  pixeldrink fans, qwel/rox supporters, n*zi's, etc.}}$ </p>
+<p align="center"> $\color{hotpink}{\text{minor │ 13+}}$ </p>
 
 
 
-<p align="center"> <img width="1000" height="590" alt="btq8ww" src="https://github.com/user-attachments/assets/1c7a8e3c-4034-419b-8b9d-7939c7fb48b4" /> </p>
+<p align="center"> $\color{hotpink}{\text{15+ and above may int , but iwcuf.}}$ </p>
+
+<p align="center"> $\color{hotpink}{\text{basic dni's +}}$ </p>
+<p align="center"> $\color{hotpink}{\text{(other) │ dni :  pixeldrink fans, qwel/rox supporters, n*zi's, etc.}}$ </p>
+
+
+
+<p align="center"> <img width="1000" height="200" alt="951948440010657560" src="https://github.com/user-attachments/assets/418217a8-93e0-4ce7-bbfc-27204e74fe87" /> </p>
