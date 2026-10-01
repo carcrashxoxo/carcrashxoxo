@@ -24,11 +24,11 @@
 <p align="center"> <img width="302" height="22" alt="Screenshot 2026-09-07 10 34 32 PM" src="https://github.com/user-attachments/assets/01608a51-67ad-44d8-a72c-02f55c67384a" /> </p>
 
 
-<p align="center"> $\color{hotpink}{\text{thank u so much for the nomination ! also shoutout to ChemicalShot !!!!!}}$ </p>
+<p align="center"> $\color{hotpink}{\text{Tׁׅhׁׅ֮ꫀׁׅܻ ℘ꭈׁׅꪱׁׅꪀׁׅᝯׁꫀׁׅܻ꯱ׁׅ֒꯱ׁׅ֒ ɑׁׅ֮℘℘ꭈׁׅꫀׁׅܻᝯׁꪱׁׅɑׁׅ֮tׁׅꫀׁׅܻ꯱ׁׅ֒ ᨮ꫶ׁׅ֮ᨵׁׅυׁׅꭈׁׅ tׁׅꪱׁׅtׁׅᥣׁׅ֪ꫀׁׅܻ꯱ׁׅ֒!}}$ </p>
 
 
 
-<p align="center"> $\color{hotpink}{\text{"Yea!! Let's get this party ON!" - Noob.}}$ </p>
+<p align="center"> $\color{hotpink}{\text{"ᝯׁᨵׁׅ ꩇׁׅ݊ꫀׁׅܻ յׁׅᨵׁׅꪱׁׅꪀׁׅ ꩇׁׅ݊ᨮ꫶ׁׅ֮ ℘ɑׁׅ֮ꭈׁׅtׁׅᨮ꫶ׁׅ֮ ꪀׁׅᨵׁׅᨰׁׅ!"}}$ </p>
 
 
 
@@ -38,17 +38,19 @@
 
 
 
-<p align="center"> $\color{hotpink}{\text{Please, call me Aspen, Andre, or cc.}}$ </p>
+<p align="center"> $\color{hotpink}{\text{ꪱׁׅ ᧁׁᨵׁׅ ϐׁׅ֒ᨮ꫶ׁׅ֮ tׁׅhׁׅ֮ꫀׁׅܻ ꪀׁׅɑׁׅ֮ ꩇׁׅ݊ꫀׁׅܻ꯱ׁׅ֒ :}}$ </p>
+  
+ <p align="center"> $\color{hotpink}{\text{ ᝯׁᝯׁ , ɑׁׅ֮꯱ׁׅ֒℘ꫀׁׅܻꪀׁׅ ( ꩇׁׅ݊ɑׁׅ֮ꪱׁׅꪀׁׅ꯱ׁׅ֒) , ɑׁׅ֮ꪀׁׅժׁׅ݊ꭈׁׅꫀׁׅܻ , ƙׁׅ֑ꪱׁׅtׁׅtׁׅꪱׁׅ , ɑׁׅ֮ꪀׁׅժׁׅ݊ ɑׁׅ֮ꪀׁׅtׁׅꪱׁׅ}}$ </p>
 
-<p align="center"> $\color{hotpink}{\text{aegosexual , genderfluid}}$ </p>
-
-
-
-<p align="center"> $\color{hotpink}{\text{use any pronouns , afab}}$ </p>
+<p align="center"> $\color{hotpink}{\text{ɑׁׅ֮ꫀׁׅܻᧁׁᨵׁׅ꯱ׁׅ֒ꫀׁׅܻ᥊ׁׅυׁׅɑׁׅ֮ᥣׁׅ֪   ,  ᧁׁꫀׁׅܻꪀׁׅժׁׅ݊ꫀׁׅܻꭈׁׅ⨍ᥣׁׅ֪υׁׅꪱׁׅժׁׅ݊}}$ </p>
 
 
 
-<p align="center"> $\color{hotpink}{\text{"I don't care what gender you see me as."}}$ </p>
+<p align="center"> $\color{hotpink}{\text{υׁׅ꯱ׁׅ֒ꫀׁׅܻ ɑׁׅ֮ꪀׁׅᨮ꫶ׁׅ֮ ℘ꭈׁׅᨵׁׅꪀׁׅᨵׁׅυׁׅꪀׁׅ꯱ׁׅ֒  ,  ꯱ׁׅ֒hׁׅ֮ꫀׁׅܻ/tׁׅhׁׅ֮ꫀׁׅܻᨮ꫶ׁׅ֮  ℘ꭈׁׅꫀׁׅܻ⨍.  ɑׁׅ֮⨍ɑׁׅ֮ϐׁׅ֒}}$ </p>
+
+
+
+<p align="center"> $\color{hotpink}{\text{"꠸ ꪖꪑ ᦓꪊᥴꫝ ꪖ ρ᥅ꫀꪻꪻꪗ ρ᥅꠸ꪀᥴꫀᦓᦓ."}}$ </p>
 
 
 
@@ -60,14 +62,14 @@
 
 
 
-<p align="center"> $\color{hotpink}{\text{minor │ 13+}}$ </p>
+<p align="center"> $\color{hotpink}{\text{ꪱׁׅ' ꩇׁׅ݊ ɑׁׅ֮ ꩇׁׅ݊ꪱׁׅꪀׁׅᨵׁׅꭈׁׅ . 13+ --- ꯱ׁׅ֒ᨵׁׅ 18+ ꩇׁׅ݊υׁׅ꯱ׁׅ֒tׁׅ ꪱׁׅᨰׁׅᝯׁɑׁׅ֮υׁׅtׁׅꪱׁׅᨵׁׅꪀׁׅ ɑׁׅ֮ꪀׁׅժׁׅ݊ ᝯׁɑׁׅ֮ꭈׁׅꫀׁׅܻ . }}$ </p>
 
 
 
-<p align="center"> $\color{hotpink}{\text{15+ and above may int , but iwcuf.}}$ </p>
+<p align="center"> $\color{hotpink}{\text{BYI : ℑ𝔣 𝔶𝔬𝔲 𝔣𝔢𝔢𝔩 𝔲𝔫𝔠𝔬𝔪𝔣𝔬𝔯𝔱𝔞𝔟𝔩𝔢 𝔴𝔦𝔱𝔥 𝔪𝔢, 𝔭𝔩𝔢𝔞𝔰𝔢 𝔱𝔢𝔩𝔩 𝔪𝔢 𝔦𝔣 𝔦𝔱 𝔟𝔬𝔱𝔥𝔢𝔯𝔰 𝔶𝔬𝔲 𝔟𝔢𝔠𝔞𝔲𝔰𝔢 ℑ'𝔪 𝔮𝔲𝔦𝔱𝔢 𝔟𝔞𝔡 𝔞𝔱 𝔱𝔢𝔩𝔩𝔦𝔫𝔤 𝔶𝔬𝔲𝔯 𝔢𝔪𝔬𝔱𝔦𝔬𝔫𝔰 𝔱𝔥𝔯𝔬𝔲𝔤𝔥 𝔱𝔢𝔵𝔱. 𝔇𝔯𝔶 𝔱𝔢𝔵𝔱𝔦𝔫𝔤 𝔴𝔦𝔩𝔩 𝔫𝔬𝔱 𝔥𝔢𝔩𝔭 𝔪𝔢 𝔨𝔫𝔬𝔴 𝔶𝔬𝔲'𝔯𝔢 𝔫𝔬𝔱 𝔦𝔫 𝔱𝔥𝔢 𝔪𝔬𝔬𝔡 𝔣𝔬𝔯 𝔰𝔬𝔪𝔢𝔱𝔥𝔦𝔫𝔤.}}$ </p>
 
-<p align="center"> $\color{hotpink}{\text{basic dni's +}}$ </p>
-<p align="center"> $\color{hotpink}{\text{(other) │ dni :  pixeldrink fans, qwel/rox supporters, n*zi's, etc.}}$ </p>
+<p align="center"> $\color{hotpink}{\text{ϐׁׅ֒ɑׁׅ֮꯱ׁׅ֒ꪱׁׅᝯׁ ժׁׅ݊ꪀׁׅꪱׁׅ +}}$ </p>
+<p align="center"> $\color{hotpink}{\text{ᨵׁׅtׁׅhׁׅ֮ꫀׁׅܻꭈׁׅ ժׁׅ݊ꪀׁׅꪱׁׅ :  Pixeldrink fans, Qwel/Rox supporters, Nazi's, Trump Supporters, Generative AI Supporters, etc.}}$ </p>
 
 
 
