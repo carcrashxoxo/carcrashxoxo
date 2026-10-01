@@ -62,9 +62,3 @@ $\color{darkcyan}{\text{nomination account .}}$
 
 
 <p align="center"> <img width="1000" height="590" alt="btq8ww" src="https://github.com/user-attachments/assets/1c7a8e3c-4034-419b-8b9d-7939c7fb48b4" /> </p>
-
-
-
-<img width="638" height="480" alt="images (10)" src="https://github.com/user-attachments/assets/1ddd4b56-fa5d-4124-820a-2a7a8b04f111" />
-
-$\color{darkcyan}{\text{ Divinity x Shanty canon, they're my NEW parents now idc meow}}$ </p>
